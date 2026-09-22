@@ -217,4 +217,4 @@ This is the full free version of **King's Bounty: Armored Princess**, including 
 Download **King's Bounty: Armored Princess** now and embark on your quest to save the kingdom!
 
 ---
-**Last updated:** 2026-09-22 05:35:32 UTC
+**Last updated:** 2026-09-22 10:32:40 UTC
